@@ -1,2 +1,2 @@
 # money
-Commemorative coind of india
+Commemorative coin of india
